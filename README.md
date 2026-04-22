@@ -37,7 +37,7 @@
 </p>
 
 <p align="center">
-   <a href="https://zennysway.carrd.co/#">My carrd!</a> 🍥
+   <a href="https://hokvii.carrd.co/">My carrd!</a> 🍥
   <a href="https://zennyway.straw.page/">strawpage</a>
 </p>
 
