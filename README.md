@@ -6,7 +6,7 @@
   <img src="https://64.media.tumblr.com/93d7f0e26b7338b377f9951d7414febe/98932c677fd05346-aa/s2048x3072/2d5d399b7bd948ba9d1664331ff007eb88ff4903.jpg" width="150" style="border-radius:50%; border:3px solid #FF8C00;">
 </p>
 
-<h1 align="center">🍥 ‧˚꒰🐾୭ ˚. zenny! / senpai ᵎᵎ 🍥</h1>
+<h1 align="center">🍥 ‧˚꒰🐾୭ ˚. gaara / senpai ᵎᵎ 🍥</h1>
 
 <p align="center">
   future hokage ✦ never giving up ✦ he,we ~ Taken ! ✦ (heh sasukes int, i need a sasuke to my naruto wink wink)
